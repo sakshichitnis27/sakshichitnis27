@@ -136,8 +136,9 @@ I focus on **business impact, scalability, and long-term maintainability**.
 - ✅ Short-term & Long-term Contracts
 
 📩 **Contact Me**
-- **Email:** *(Add your email here)*
-- **LinkedIn:** *(Add your LinkedIn here)*
+- **Email: sakshi.chitnis23@gmail.com 
+- **LinkedIn: https://www.linkedin.com/in/sakshi-chitnis-0333881ab/
+)*
 
 ---
 
